@@ -1,4 +1,7 @@
-## Hi there 👋
+## Hi, I'm Bishwajeet👋
+Computer Science B.Tech graduate committed to achieving organizational objectives through continuous learning
+and dynamic problem-solving. Dedicated to utilizing technical skills for innovative solutions and eager to contribute
+meaningfully to the team’s success.
 
 
 
